@@ -10,7 +10,7 @@
 
 - 📝 I regularly write articles on [https://everydaythoughtswithroshni.substack.com/](https://everydaythoughtswithroshni.substack.com/)
 
-- 📫 How to reach me **roshnighosh@gmail.com**
+- 📫 How to reach me **roshnijingles@gmail.com**
 
 - ⚡ Fun fact **I'm a trained singer for about 15 years now :)**
 
